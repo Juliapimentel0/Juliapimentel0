@@ -7,4 +7,5 @@
 •_não gosto de sair e eu amo meu gato o Tiãoo🐈‍⬛_
 
 •**Me chama no free fire 😜🔥🔫**
-![](https://images.app.goo.gl/asqGRXHANeNvQhop)
+
+![](https://blog-static.petlove.com.br/wp-content/uploads/2022/05/gato-preto-deitado-Petlove.jpg?_gl=1*th0zwo*_gcl_au*NjgxNTExNTY0LjE3MjY3NDk2MTA.)
